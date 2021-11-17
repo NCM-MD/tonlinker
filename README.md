@@ -1,4 +1,4 @@
-[![Header](https://github.com/TONLINKER/tonlinker/blob/main/header.png)](https://www.youtube.com/channel/UCVRkvyetzaeZXoQ9De4C3Xw)
+[![Header](https://github.com/TONLINKER/tonlinker/blob/main/header.png)](https://www.youtube.com/channel/UC0tpKn9UYKbfV44vKlnK5Rw)
 
 ## I'm a beginner Youtuber
 
